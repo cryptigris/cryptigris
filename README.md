@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cryptigris
+- 👀 I’m interested in smol tings
+- 🌱 I’m currently learning smol
+- 💞️ I’m looking to collaborate on smol stef
+- 📫 How to reach me cryptigris at chimail tot com
